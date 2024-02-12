@@ -1,3 +1,6 @@
+
+This is not my main GitHub profile please get in touch with me for my main GitHub profile as it belongs to organisation so I can't put it on public view 
+
 - 👋 Hi, I’m @juhildungrani
 - 👀 I’m interested in Machine Learning
 - 🌱 I’m currently learning Deep Learning 
